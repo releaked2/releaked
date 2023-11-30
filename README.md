@@ -2,10 +2,9 @@
 
 <br>
 
-### This will probably the last you hear from "Re-Leaked."
-<br>
+### This will probably the last you hear from "Re-Leaked.":
 Hello there, I am Re-Leaked. If you want any proof, then [here you go lol](https://media.discordapp.net/attachments/1179830216248533122/1179832886233399436/image.png) 
-</br>
+<br><br>
 I made my first repository to leak stuff on September 17th of 2023, I didn't know exactly what I was getting myself into but I figured it out in time. When I first made that repository, I didn't plan on leaking stuff, I just wanted to mess around with Loonie.
 
 <br>
